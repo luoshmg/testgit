@@ -5,3 +5,4 @@ He who has great power shoulduse it lightly. --19 Mar
 
 To become convinced that you can succeed is the first requisite to success. --18 Mar
 7777777777
+8888888888
